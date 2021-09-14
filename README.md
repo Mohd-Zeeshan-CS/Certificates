@@ -1,3 +1,3 @@
 # Certificates
 My Certificates
-I,ve got these certificates on the basis of my marks in different tests. 
+I have got these certificates on the basis of my marks and participation in different tests and programs. 
